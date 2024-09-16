@@ -1,4 +1,4 @@
-## Hi there, I,m Jawad Hassan 👋
+## Hi there, I'm Jawad Hassan 👋
 
 # Welcome to My GitHub Profile!
 
